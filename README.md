@@ -3,3 +3,4 @@
 motivation not found, but code still shipping
 Powered by pure survival mode.
 Still deploying, even when inspiration is offline.
+No motivation, no excuses, just commits.

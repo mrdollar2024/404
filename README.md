@@ -17,7 +17,4 @@ The bug isn't fixed, but neither am I.
 
 Productivity powered by pure stubbornness.
 
-
-
-555555555555555
 Motivation is temporary, shipping is forever.

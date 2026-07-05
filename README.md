@@ -21,5 +21,4 @@ Motivation is tempor
 
 Productivity powered by pure stubbornness.
 
-Motivation is tempor
-75544
+Motivation is tem

@@ -20,5 +20,17 @@ Productivity powered by pure stubbornness.
 Motivation is tempor
 
 Productivity powered by pure stubbornness.
-546463
-455646456
+
+No motivation, no excuses, just commits.
+
+Running on deadlines instead of motivation.
+
+
+
+No motivation, no excuses, just commits.
+
+Running on deadlines instead of motivation.
+
+No motivation, no excuses, just commits.
+
+Running on deadlines instead of motivation.

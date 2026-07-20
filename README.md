@@ -30,6 +30,3 @@ No motivation, no excuses, just commits.
 Running on deadlines instead of motivation.
 
 No motivation, no excuses, just commits.
-
-Running on deadlines instead of m
-412

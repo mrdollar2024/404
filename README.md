@@ -21,6 +21,3 @@ Motivation is tempor
 
 Productivity powered by pure stubbornness.
 
-No motivation, no excuses, just commits.
-
-Running on deadlines instead of motivation.

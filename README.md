@@ -17,10 +17,6 @@ Productivity powered by pure stubbornness.
 
 Motivation is tempor
 
-Productivity powered by pure stubbornness.
-
-سیب 
-سیب سی
- سیب 
-  سیب
-  
+Productivity powered by pure stubbornness.415655
+453
+41

@@ -1,7 +1,4 @@
-Still deploying, even when inspiration is offline.
-
-No motivation, no excuses, just commits.
-
+Still 
 Running on deadlines instead of motivation.
 
 The bug isn't fixed, but neither am I.

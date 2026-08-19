@@ -1,5 +1,3 @@
-
-
 Still deploying, even when inspiration is offline.
 
 No motivation, no excuses, just commits.
@@ -9,4 +7,3 @@ Running on deadlines instead of motivation.
 The bug isn't fixed, but neither am I.
 
 Productivity powered by pure stubbornness.
-44444

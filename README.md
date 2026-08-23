@@ -1,7 +1,4 @@
-1223
-123.52
-
-Running on deadlines instead of motivation.
+edrfg on.
 
 The bug isn't fixed, but neither am I.
 

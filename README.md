@@ -2,4 +2,6 @@
 • Complete the available quest
 • Claim 5,000 points
 • Share on X for an extra 1,000 points if required
-123
+df
+
+5445

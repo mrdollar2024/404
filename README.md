@@ -3,4 +3,9 @@
 • Claim 5,000 points
 • Share on X for an extra 1,000 points if required
 
- 
+ 1
+ 2
+ 3
+ 4
+ 5
+ 6

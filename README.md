@@ -1,7 +1,4 @@
-0
-0
-0
-0
+1
 0
 • Complete the available quest
 • Claim 5,000 points
